@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-Here are some ideas to get you started:
+####WHO AM I?
 
 - 🔭 I’m currently working on PROJECT TERMINAL.
 - 👯 I’m looking to collaborate on a MMO GAME CUZ IDKA ABOUT NETWORKING LMAO.
