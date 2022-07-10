@@ -8,4 +8,4 @@
 - 💬 Ask me about UNITY.
 - 📫 How to reach me: kynqau#0331.
 - 😄 Pronouns: HE/HIM.
-- ⚡ Fun fact(s): Valorant Noob + Inexperienced Game Dev + Smol Brain.
+- ⚡ Fun fact(s): Valorant Noob + Inexperienced Game Dev + Smol Brain + 13 yr old + Short.
