@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-##WHO AM I?
+#### WHO AM I?
 
 - 🔭 I’m currently working on PROJECT TERMINAL.
 - 👯 I’m looking to collaborate on a MMO GAME CUZ IDKA ABOUT NETWORKING LMAO.
