@@ -5,3 +5,4 @@
 
 🎮 Working on: αEngine, ProjectTermianal
 
+📡 Wanna say hi? kynqau#0331 (discord)
